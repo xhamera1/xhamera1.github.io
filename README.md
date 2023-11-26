@@ -1,4 +1,5 @@
 # O mnie
+- Patryk Chamera
 - 18 lat 🧑🏻
 - Kraków/Stalowa Wola 🏙️
 - Studiuje na Akademii Górniczo-Hutniczej im. Stanisława Staszica 🎓
